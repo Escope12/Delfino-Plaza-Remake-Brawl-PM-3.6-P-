@@ -1,3 +1,5 @@
+![Brawl Delfino Plaza Remake](https://github.com/Lilothestitch16/Delfino-Plaza-Super-Smash-Bros.-Brawl-Remake/assets/8963276/b435fe18-938e-4c04-b908-ade4827c1358)
+
 Thanks for downloading this mod. Hope you enjoy with this stage!
 
 Delfino Plaza received a great overhaul since it's debut in Super Smash Bros. Brawl with a lot of improvements and new vertex colors.
