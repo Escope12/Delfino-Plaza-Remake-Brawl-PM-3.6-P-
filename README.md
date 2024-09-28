@@ -1,4 +1,4 @@
-![Brawl Delfino Plaza Remake](https://github.com/Lilothestitch16/Delfino-Plaza-Super-Smash-Bros.-Brawl-Remake/assets/8963276/b435fe18-938e-4c04-b908-ade4827c1358)
+![Super Smash Bros  Brawl Delfino Plaza Remake](https://github.com/user-attachments/assets/eeb3b259-ea16-433a-9e76-7d0e178eb7bf)
 
 Thanks for downloading this mod. Hope you enjoy with this stage!
 
