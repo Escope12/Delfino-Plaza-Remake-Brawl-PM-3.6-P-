@@ -1,4 +1,17 @@
 ![Super Smash Bros  Brawl Delfino Plaza Remake](https://github.com/user-attachments/assets/eeb3b259-ea16-433a-9e76-7d0e178eb7bf)
+![Brawl Delfino Plaza Remake](https://github.com/user-attachments/assets/3108f9c7-5f3a-4d2b-b7a5-1685de904a18)
+![RSBE01-965](https://github.com/user-attachments/assets/7763a5f9-da95-43f1-a08f-d55b644fefa4)
+![RSBE01-966](https://github.com/user-attachments/assets/daee7f96-5d21-46f9-b54d-034583dd92d2)
+![RSBE01-967](https://github.com/user-attachments/assets/f4ec7234-677a-42b8-94e4-4b300377db05)
+![RSBE01-968](https://github.com/user-attachments/assets/c26793d1-20ec-4f08-a6d8-bd30137f1ccd)
+![RSBE01-969](https://github.com/user-attachments/assets/518b4f85-a64c-4e74-aade-fabc877eb09b)
+![RSBE01-970](https://github.com/user-attachments/assets/23813b8d-0016-4f88-aa3c-c59e317030e2)
+![RSBE01-971](https://github.com/user-attachments/assets/57b83e3f-1391-41a2-9167-a569d0024b77)
+![RSBE01-972](https://github.com/user-attachments/assets/798b4469-c833-4360-89d3-e430791f9250)
+![RSBE01-973](https://github.com/user-attachments/assets/886a814c-3214-4405-abf5-9078e63838db)
+![RSBE01-977](https://github.com/user-attachments/assets/792f5805-91dc-4caf-8d15-dbad128236d5)
+![RSBE01-979](https://github.com/user-attachments/assets/e8d353b8-f869-4359-936e-dfb0a6e6156f)
+![RSBE01-964](https://github.com/user-attachments/assets/3897cf5f-3249-422d-aedb-5b2a114ef8da)
 
 Thanks for downloading this mod. Hope you enjoy with this stage!
 
