@@ -6,7 +6,7 @@ Delfino Plaza received a great overhaul since it's debut in Super Smash Bros. Br
 
 *COMPLETE CHANGELIST* from the Brawl version:
 - Most of the objects have been fixed and improved and were extracted from Super Mario Sunshine and Super Smash Bros. for Wii U.
-- The manholes are now blue like in Super Mario Sunshine and red in the Brawl Style Version.
+- The manholes are now blue like in Super Mario Sunshine and in the Brawl Style Version.
 - Added back the 3 missing palm trees and the trees sticking out of the wall of the hill.
 - Has a version with the Banana Palm Tress like in Brawl and a version with the Original Palm Trees from Super Mario Sunshine.
 - The Grand Pianta Statue appears on the background of the stage and had been extracted from Super Mario Sunshine.
